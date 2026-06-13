@@ -1,7 +1,7 @@
 more info about mee . .
 ![Frame 5](https://files.catbox.moe/4five0.jpeg)
 
-hii, im rioshi ! sheher sx3sx6sx8 +0msk bday 25.03 
+hii, im rioshi ! sheher +0msk bday 25.03 
 
 ♡ ︎
 
